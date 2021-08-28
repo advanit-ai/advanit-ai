@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @advanit-ai
 - 👀 I’m interested in (a) AI artificial intelligence, (b) yoga & mystic arts, and (c) philosophy & literature
-- 🌱 I’m currently learning (a) conversational AI, (b) Google tools, and (c) 
+- 🌱 I’m currently learning (a) conversational AI, (b) Google tools, and (c) integrative systems
 - 💞️ I’m looking to collaborate on (I'm still new and big thinker so systems-based, analytics, and NLP work is fine)
 - 📫 How to reach me Twitter @advanit or LinkedIn /in/advanit
 
